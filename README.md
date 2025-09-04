@@ -1,3 +1,3 @@
 ## 🚀 Demonstração
 
-👉 [Clique aqui para acessar o site](https://d-cardosof.github.io/eeprofabeatrizlopes/)
+👉 [Clique aqui para acessar o site](eeprofabeatrizlopes.com)
